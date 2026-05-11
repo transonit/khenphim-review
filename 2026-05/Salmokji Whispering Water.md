@@ -1,4 +1,4 @@
-# Review phim Salmokji: Whispering Water (살목지) - Khi nỗi sợ trỗi dậy từ mặt hồ tĩnh lặng
+# Review Salmokji: Sợ ma một phần, sợ đồng nghiệp báo hại mười phần!
 
 Nếu bạn nghĩ rằng phim kinh dị chỉ là những màn hù dọa bằng âm thanh chát chúa (jump-scare) rẻ tiền, thì **Salmokji: Whispering Water (살목지)** sẽ khiến bạn phải thay đổi hoàn toàn quan niệm đó. Không cần đến những tiếng động gầm rú hay âm nhạc dồn dập, bộ phim của đạo diễn Lee Sang-min đã khéo léo sử dụng chính bóng tối và sự tĩnh lặng để bóp nghẹt trái tim khán giả.
 
